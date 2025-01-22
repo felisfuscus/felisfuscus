@@ -1,4 +1,4 @@
-## Hi there 👋
+i'll work on it when i feel likenit Gg
 
 <!--
 **felisfuscus/felisfuscus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
